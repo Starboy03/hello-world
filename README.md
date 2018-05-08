@@ -2,5 +2,5 @@
 Just another repository 
 
 Hi Humans!
-I've come to save the humankind (Keep your eyes on me).
+I've come to save humankind (Keep your eyes on the stars).
 Let's walk together.
